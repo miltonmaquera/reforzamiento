@@ -1,3 +1,3 @@
 # reforzamiento
 
-# Milton Quenta Maquera
+# Milton Maquera
